@@ -4,4 +4,4 @@
 
 #### Credit:
 
-Created my logo at LogoMakr.com. (search icon)
+Created my logo at LogoMakr.com. (search icon, arrow, checkmark)
